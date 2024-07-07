@@ -1,4 +1,4 @@
-# Hi, I’m @shikharai22
+# Hi, I’m Shikha Rai
 
 👀 I’m interested in finance, business analytics, and data-driven decision-making.
 
