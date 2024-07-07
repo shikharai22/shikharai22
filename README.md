@@ -7,7 +7,7 @@
 💞️ I’m looking to collaborate on projects that involve financial modelling, data analysis, and business process optimization.
 
 📫 How to reach me:
-- Email: shikharai22@example.com
+- Email: raishikha075@gmail.com
 - LinkedIn [https://www.linkedin.com/in/shikha-rai-9460a6207?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app]
 
 😄 Pronouns: she/her
